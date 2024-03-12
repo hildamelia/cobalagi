@@ -1,0 +1,1 @@
+Salah satu tempat yang sangat saya sukai ketika berlibur adalah pantai. Hal yang membuat saya menyukai pantai akrena suasana di sana, apalagi ketika sore hari. Pemandangan sore di pantai sangat indah.
