@@ -1,0 +1,1 @@
+Gunung adalah salah satu kenampakan alam yang indah yang bisa juga dikatakan sebagai dataran yang menonjol dan lebih tinggi dari dataran di sekitarnya.
